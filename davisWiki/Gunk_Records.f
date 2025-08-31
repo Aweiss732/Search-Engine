@@ -1,1 +1,0 @@
-Gunk Records is a local indie Music Scene music label started by local musician Niels Pederson and Harry Greer. Gunk studios can be found in Will Von Rayboulds garage. For a donation, theyll record you.

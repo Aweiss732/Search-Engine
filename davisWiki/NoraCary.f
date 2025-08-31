@@ -1,1 +1,0 @@
-My names Nora. Im a former resident of, and frequent visitor to Davis. I live in Winters. I studied cultural anthropology and textile design at UC Davis. Im interested in sustainability and living locally.

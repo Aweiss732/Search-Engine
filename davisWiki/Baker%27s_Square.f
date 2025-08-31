@@ -1,1 +1,0 @@
-#redirect Bakers Square

@@ -1,1 +1,0 @@
-#redirect DLSC Soccer Fields

@@ -1,1 +1,0 @@
-#redirect Hour of Power

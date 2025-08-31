@@ -1,1 +1,0 @@
-Hello and Welcome To The Wiki. I wanted you to know your posting for Student Hosting was deleted from the events page but feel free to create an actual page for it since it most definitely applies to the Davis community, although not the events page.   Users/WesP Gramps

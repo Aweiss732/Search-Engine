@@ -1,3 +1,0 @@
-I hate writing about myself so Ill keep this short....
-
-Im Hunter and I chose to use a fictional name instead because I simply feel more comfortable using it.  Anyways I just changed my davis wiki name from Users/HVS to this.

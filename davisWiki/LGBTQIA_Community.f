@@ -1,1 +1,0 @@
-#redirect Rainbow Community

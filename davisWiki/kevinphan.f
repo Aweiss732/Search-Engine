@@ -1,1 +1,0 @@
-Image(kp.jpg, thumbnail, picture taken during his pledge quarter)Kevin Phan will serve as Phi Alpha Deltas marshal during the 20092010 academic year. He previously served as Public Relations Chair, succeeded by Christopher Civil. He knows Users/StevenLee.

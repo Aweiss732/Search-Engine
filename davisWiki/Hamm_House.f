@@ -1,1 +1,0 @@
-#redirect Tercero D Building

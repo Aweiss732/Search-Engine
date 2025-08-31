@@ -1,1 +1,0 @@
-#redirect Food Science & Technology

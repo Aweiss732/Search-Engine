@@ -1,1 +1,0 @@
-#redirect Explorit Science Center

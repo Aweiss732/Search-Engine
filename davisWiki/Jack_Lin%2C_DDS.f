@@ -1,1 +1,0 @@
-#redirect James Meinert, DDS

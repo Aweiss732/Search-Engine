@@ -1,1 +1,0 @@
-#redirect Optometrists and Ophthalmologists

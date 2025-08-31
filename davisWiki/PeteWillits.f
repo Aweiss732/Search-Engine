@@ -1,1 +1,0 @@
-Senseless Act of Beauty :)

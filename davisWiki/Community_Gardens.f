@@ -1,1 +1,0 @@
-#redirect Davis Community Garden

@@ -1,1 +1,0 @@
-#redirect Kings & Queens Apartments

@@ -1,1 +1,0 @@
-The Maddy Lab is part of the California Animal Health and Food Safety Lab. Its focus is primarily on equestrian lab work and this is reflected by the Distance Poles around the outside of the building.

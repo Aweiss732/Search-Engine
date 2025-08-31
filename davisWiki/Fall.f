@@ -1,1 +1,0 @@
-#redirect Fall in Davis

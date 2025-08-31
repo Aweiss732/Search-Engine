@@ -1,1 +1,0 @@
-UCD Professor of Entomology, Diane Ullman teaches Entomology 1 along with Donna Billick. This course is part of the ArtScience Fusion Program which has resulted in science art pieces being created on the UCD campus.

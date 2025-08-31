@@ -1,3 +1,0 @@
-#redirect Sigma Phi Epsilon
-
-

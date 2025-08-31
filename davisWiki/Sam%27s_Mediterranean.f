@@ -1,1 +1,0 @@
-#redirect Sams Mediterranean Cuisine

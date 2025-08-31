@@ -1,1 +1,0 @@
-#redirect Life Sciences Building

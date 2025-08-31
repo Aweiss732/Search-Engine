@@ -1,1 +1,0 @@
-#redirect UCDavis Usenet FAQ

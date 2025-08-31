@@ -1,3 +1,0 @@
-
-The Helge B. Olsen Furniture Studio...
-

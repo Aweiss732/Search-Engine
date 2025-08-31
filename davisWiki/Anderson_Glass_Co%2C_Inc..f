@@ -1,1 +1,0 @@
-#redirect Anderson Glass Co.

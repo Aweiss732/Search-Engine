@@ -1,1 +1,0 @@
-#redirect Koinonia @ Davis

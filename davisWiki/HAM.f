@@ -1,1 +1,0 @@
-#redirect Amateur Radio Service

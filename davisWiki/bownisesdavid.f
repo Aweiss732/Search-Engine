@@ -1,1 +1,0 @@
-BannedGroup spammer

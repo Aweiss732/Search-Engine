@@ -1,1 +1,0 @@
-#redirect Consumer Protection Guide

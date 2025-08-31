@@ -1,1 +1,0 @@
-#redirect United Student Alliance

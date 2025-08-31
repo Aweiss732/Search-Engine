@@ -1,1 +1,0 @@
-Ban Randy Banned user

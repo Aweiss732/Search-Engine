@@ -1,1 +1,0 @@
-This account has been BannedGroup banned because this editor is a bad person, taking advantage of and vandalizing the communal work of volunteers.   I.e., they spammed the heck out of the wiki repeatedly.

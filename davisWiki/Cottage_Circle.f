@@ -1,1 +1,0 @@
-Address(Cottage Circle) is really three quarters of a rectangle. It is one of the streets in Aggie Village. There are houses on its eastern and western lengths and the arboretum is visible from its southern segment. There are some lovely eucalyptus trees along the southern segment.

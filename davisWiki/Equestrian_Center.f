@@ -1,1 +1,0 @@
-#redirect UCD Equestrian Center

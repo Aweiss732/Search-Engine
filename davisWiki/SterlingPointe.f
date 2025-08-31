@@ -1,2 +1,0 @@
-Describe Users/SterlingPointe here.
-

@@ -1,2 +1,0 @@
-
- Source: Davis Historical Society

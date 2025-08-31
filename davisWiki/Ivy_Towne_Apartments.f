@@ -1,1 +1,0 @@
-#redirect College Square Apartments

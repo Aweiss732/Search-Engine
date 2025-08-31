@@ -1,1 +1,0 @@
-#redirect Daisy Girl Scouts

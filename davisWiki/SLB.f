@@ -1,1 +1,0 @@
-#redirect Sciences Laboratory Building

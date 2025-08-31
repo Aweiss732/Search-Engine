@@ -1,1 +1,0 @@
-#redirect Primary Concepts Tattooing

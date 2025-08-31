@@ -1,1 +1,0 @@
-Valerie Peterson 57, brunette, lives in 202a Webster Hall Webster. Enjoys volleyball class and laying on the grass in the middle of the quad. Also appreciates puppies, small creatures in general, and fuzzy things. She lives with a big weirdo named JennaPierce. Watch out for her.

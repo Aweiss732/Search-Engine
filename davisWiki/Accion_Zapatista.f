@@ -1,1 +1,0 @@
-#redirect Acción Zapatista

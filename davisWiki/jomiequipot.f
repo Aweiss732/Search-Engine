@@ -1,1 +1,0 @@
-Spammer.  Repeated.  BannedGroup Banned.

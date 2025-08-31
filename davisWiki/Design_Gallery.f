@@ -1,1 +1,0 @@
-#redirect Design Museum

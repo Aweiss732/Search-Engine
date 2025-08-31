@@ -1,1 +1,0 @@
-#redirect Gracepoint Davis Church

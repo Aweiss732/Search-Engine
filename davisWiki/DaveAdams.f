@@ -1,2 +1,0 @@
-http://daveadamsphotography.com/
-

@@ -1,1 +1,0 @@
-#redirect APEX Cycles & Service

@@ -1,1 +1,0 @@
-#redirect Campus Judicial Board

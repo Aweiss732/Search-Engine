@@ -1,1 +1,0 @@
-#redirect Howard Johnson Hotel

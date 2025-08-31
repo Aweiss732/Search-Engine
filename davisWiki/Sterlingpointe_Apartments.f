@@ -1,1 +1,0 @@
-#redirect Sterling Pointe Apartments

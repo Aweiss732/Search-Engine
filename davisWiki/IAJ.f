@@ -1,1 +1,0 @@
-#redirect International Affairs Journal

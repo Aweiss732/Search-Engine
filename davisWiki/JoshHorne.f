@@ -1,1 +1,0 @@
-Commented on Parkside Apartments.

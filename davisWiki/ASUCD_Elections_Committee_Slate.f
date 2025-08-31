@@ -1,1 +1,0 @@
-#redirect Elections Committee Slate

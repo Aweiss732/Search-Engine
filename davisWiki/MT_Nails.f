@@ -1,1 +1,0 @@
-#redirect DT Hair & Nails

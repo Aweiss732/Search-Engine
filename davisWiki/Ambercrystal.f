@@ -1,1 +1,0 @@
-Yes, I am Amber. Im an Local Artists artist in the works. I specialize in portraits, figures, (acrylic/watercolor/charcoal/graphite), japanese animation, or anything you want! If you need the hook up let me knowthis is my career so I do charge!! ;)

@@ -1,1 +1,0 @@
-#redirect Multifaith Student Group

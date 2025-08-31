@@ -1,1 +1,0 @@
-#redirect Manna Korean Restaurant

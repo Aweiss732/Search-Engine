@@ -1,2 +1,0 @@
-The menu for Symposium
-

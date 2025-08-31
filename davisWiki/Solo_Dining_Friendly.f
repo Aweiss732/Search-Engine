@@ -1,1 +1,0 @@
-#redirect Solo Dining

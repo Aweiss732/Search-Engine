@@ -1,1 +1,0 @@
-#redirect Acme Theatre Co.

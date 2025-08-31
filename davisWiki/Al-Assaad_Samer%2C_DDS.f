@@ -1,1 +1,0 @@
-#redirect Samer Alassaad, DDS

@@ -1,1 +1,0 @@
-#redirect Bicycle Users Group

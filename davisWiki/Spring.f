@@ -1,1 +1,0 @@
-#redirect Spring in Davis

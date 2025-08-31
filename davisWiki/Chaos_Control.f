@@ -1,1 +1,0 @@
-#redirect Karma Patrol

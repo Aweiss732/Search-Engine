@@ -1,1 +1,0 @@
-#redirect Medical Vision Technology

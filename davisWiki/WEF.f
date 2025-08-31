@@ -1,1 +1,0 @@
-#redirect Whole Earth Festival

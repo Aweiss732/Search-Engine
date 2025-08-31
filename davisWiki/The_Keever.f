@@ -1,1 +1,0 @@
-Keevers most revered artifact.

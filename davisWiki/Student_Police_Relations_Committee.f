@@ -1,1 +1,0 @@
-#redirect StudentPolice Relations Committee

@@ -1,1 +1,0 @@
-The University Extension Center is a recently added section of UC Davis.  It consists of the University Extension Classroom Center and the Plant Science Teaching Facility.  It is just west of La Rue, located on address(Extension Center Dr.).

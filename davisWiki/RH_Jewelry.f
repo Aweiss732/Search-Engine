@@ -1,5 +1,0 @@
-
-
-Sells jewelry.
-
-

@@ -1,1 +1,0 @@
-The wiki:WikiPedia:Alzheimers Alzheimers Support Group meets the third Wednesday of every month at the Davis Senior Center. It is a support group for families, including children and spouses, and caregivers of Alzheimers victims. They facilitate group sharing, ongoing support and occasional guest speakers.

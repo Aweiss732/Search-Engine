@@ -1,1 +1,0 @@
-#redirect Funny Bumper Stickers
